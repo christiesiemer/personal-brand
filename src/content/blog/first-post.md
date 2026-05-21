@@ -53,5 +53,6 @@ We live in a world with an overwhelming amount of heartache, pain and suffering,
 I’m dedicated to helping people get the very most out of their lives. I want them to spend less time stuck feeling helpless and hopeless. I want them to heal and let go, so they have open hands for the gifts and goodness that life has for them. I want to enter the field of Marriage and Family Therapy because I believe the brevity of life begs us to squeeze as much joy, love, and connection we can out of this life.
 
 Mary Oliver eloquently asks, “Tell me, what is it you plan to do with your one wild and precious life?” (Oliver, 1992). 
+
 My answer is simple: this. 
 
