@@ -1,7 +1,7 @@
 ---
 title: "my graduate admissions essay"
 description: "a personal manifesto"
-pubDate: "May 21 2026"
+pubDate: "May 22 2026"
 heroImage: "/blog-placeholder-3.jpg"
 ---
 
