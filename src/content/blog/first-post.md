@@ -54,5 +54,4 @@ I’m dedicated to helping people get the very most out of their lives. I want t
 
 Mary Oliver eloquently asks, “Tell me, what is it you plan to do with your one wild and precious life?” (Oliver, 1992). 
 My answer is simple: this. 
-<img width="468" height="642" alt="image" src="https://github.com/user-attachments/assets/e18f5195-a713-458f-82f4-95e8d431dff8" />
 
